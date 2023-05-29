@@ -21,7 +21,7 @@ Dear Basketball is the most intimate story on the list as Kobe Bryant chronicles
 <iframe src="https://player.vimeo.com/video/829888182?h=48294a3167" width="100%" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>
 <p><a href="https://vimeo.com/829888182">wtpain</a> from <a href="https://vimeo.com/user200968940">jason</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
- Batman has been a prevalent part of Hollywood with many different interpretations of his story over time so it is always surprising when a creator can approach his story from a different angle. The story follows Batman/bruce as he recollects his past in the middle east. The writing is subtle, concise and leaves many things up for interpretation. The editing is exquisitely empathizing with the subtle inferences from the dialogue. It is a beautiful portrait of a flawed human being.
+ Batman has been a prevalent part of Hollywood undergoing many different interpretations of his story over time so it is always surprising when a creator can approach his story from a different angle. The story follows Batman/bruce as he recollects his past in the middle east. The writing is subtle, concise and leaves many things up for interpretation. The editing is slick and ladened with subtle conveyance to the underlying ideas hinted at with the dialogue. It is a beautiful portrait of a flawed human being.
 
 #### Still Life
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/La6T8Bq6CsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
