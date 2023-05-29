@@ -10,7 +10,7 @@ image: assets/images/moviesmerged.jpg
 There are few things I love more than film. Over the years of watching an astounding amount of films, there are a few that I always come back to or have had a profound impact on my life. Here is a list of some of those films 
 
 #### Magnolia
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KnamcFv_N9Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/KnamcFv_N9Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 Notable Quote: *We may be through with the past but the past aint through with us*
 
@@ -24,7 +24,7 @@ Notable Qoutes: *I Tried To Have A Miscarriage.*
 Hereditary is one of the most terrifying movies of all time. It is also a well-directed dramatic thriller that centers around family dysfunction. The off-kilter editing throughout the film adds to the building tension throughout the movie.  I want to keep my synopsis brief. This one is better to go in blind
 
 #### The Grand Budapest Hotel
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1Fg5iWmQjwk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/1Fg5iWmQjwk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 Notable Quotes: *I've Had Older*
 
@@ -55,7 +55,7 @@ It Follows is yet another horror addition to this list. The movie is about a gro
 #### Whiplash
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/7EPC5m1QsSk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-I never thought jazz could be so stressful until I saw Whiplash. This movie is so tense that you could hear a pin drop in the auditorium where i was watching the movie. JK Simmons is a respected conductor and mentor to pupil, Dameon, a drummer who wants to be the next charlie parker. What follows is the most stress-inducing film I have seen since black swan (another favorite of mine). If you like Black Swan, here is another one for you.
+I never thought jazz could be so panic-inducing until I saw Whiplash. This movie is so tense that you could hear a pin drop in the auditorium where i was watching the movie. JK Simmons is a respected conductor and mentor to pupil, Dameon, a drummer who wants to be the next charlie parker. What follows is the most stress-inducing film I have seen since black swan (another favorite of mine). If you like Black Swan, here is another one for you.
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/MYSx_K9UEek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
