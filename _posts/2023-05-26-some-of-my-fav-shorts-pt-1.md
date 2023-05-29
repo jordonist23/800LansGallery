@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Some of my favourite Shorts Pt.1"
+title:  "Some of my Favourite Shorts Pt.1"
 author: jordon
 categories: [ Movies, Shorts]
 image: assets/images/mergedshorts.jpg
