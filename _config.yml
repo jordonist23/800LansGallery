@@ -2,7 +2,7 @@
 name: '800Lans Gallery'
 description: '800Lans Gallery is where we celebrate local artist'
 logo: 'assets/images/logo.png'
-favicon: 'assets/images/favicon.ico'
+favicon: 'assets/images/l-favicon.ico'
 baseurl: '/800LansGallery'
 disqus: 'demowebsite'
 email: '800lans@gmail.com'
