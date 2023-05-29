@@ -8,7 +8,7 @@ tags: [sticky]
 ---
 
 
-Short movies and videos hold a special place in my heart. It's always an impressive feat of directing, editing, and writing prowess when a creator can fit a compelling story while being concise. Here are a few of my favorite shorts that have made me laugh, cry, ponder, and shocked me. Hopefully, they will do the same for you. I  also made sure not to divulge any spoilers so  you can experience them fresh and without further ado. I added the link to each short so each one can be watched on this page.
+Short movies and videos hold a special place in my heart. It's always an impressive feat of directing, editing, and writing prowess when a creator can create a compelling story while remaining concise. Here are a few of my favorite shorts that have made me laugh, cry, ponder, and shocked me. Hopefully, they will do the same for you. I  also made sure not to divulge any spoilers so  you can experience them fresh and without further ado. I added the link to each short so each one can be watched on this page.
 
 
 #### Dear Basketball
