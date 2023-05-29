@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Some of my favourite TV shows Pt.1"
+title:  "Some of my Favourite TV shows Pt.1"
 author: jordon
 categories: [TV, Shows ]
 image: assets/images/tvshowsmerged.jpg
