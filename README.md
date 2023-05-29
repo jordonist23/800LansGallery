@@ -50,3 +50,4 @@ Theme designed and developed by [Sal](https://www.wowthemes.net), *free* under M
 
 [Live Demo](https://wowthemesnet.github.io/mundana-theme-jekyll/)
 # 800LansGallery
+# 800LansGallery
