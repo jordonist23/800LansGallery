@@ -8,7 +8,7 @@ tags: [sticky]
 ---
 
 
-Short movies and videos hold a special place in my heart. It's always an impressive feat of directing, editing, and writing prowess when a creator can create a compelling story while remaining concise. Here are a few of my favorite shorts that have made me laugh, cry, ponder, and shocked me. Hopefully, they will do the same for you. I  also made sure not to divulge any spoilers so  you can experience them fresh and without further ado. Each short can be watched on this page. Enjoy.
+Short movies and videos hold a special place in my heart. It's always an impressive feat of directing, editing, and writing prowess when a creator can create a compelling story while remaining concise. Here are a few of my favorite shorts that have made me laugh, cry, ponder, and shocked me. Hopefully, they will do the same for you. I  also made sure not to divulge any spoilers so  you can experience them fresh and without further ado. Each short can be watched on this page. Dont forget to put in your earphones, Enjoy.
 
 
 #### Dear Basketball
@@ -31,17 +31,17 @@ Dear Basketball is the most intimate story on the list as Kobe Bryant chronicles
 #### Volkwagen Star Wars Ad
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/YdZMypElBpo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-This ad is the shortest on the list, clocking in around 1 min, and is the only silent film listed. Don't lets it size and the fact it is a commercial detour you from watching. This one is hilarious and remains a masterclass in both directing and editing. A tour de force!!
+This short film is the shortest on the list, clocking in around 1 min, and is the only silent film listed. Don't lets it size and the fact it is a commercial detour you from watching. This one is hilarious and remains a masterclass in both directing and editing. A tour de force!!
 
 #### Mama
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/fcrM74s7tm4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-Mama serves as the spooky film on the list. Mama is also the only short developed into a full-feature film by acclaimed director Guillermo Deltorro. This film has smooth long shots, elite directing, and a killer scare scene. With this much talent, it was destined for the big screen.
+Mama serves as the spooky film on the list. Mama is also the only short developed into a full-feature film by acclaimed director Guillermo Deltorro. This film has smooth long shots, atmospheric sound design, elite directing, and a killer scare scene. With this much talent, it was destined for the big screen.
 
 #### The Thing about The Johnsons
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/nQobOSv2kzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-This film is unforgettable. Once you've seen this short, you cannot unsee it. It's better to go into this film completely blind. This was the film that blasted acclaimed director Ari Aster on the scene. Despite the mainstream success of his feature lengths films, this one remains his most twisted and extreme. Be warned, this one will stick with you.
+Be warned, this film is unforgettable. Once you've seen this short, you cannot unsee it. This was the film that blasted acclaimed director of Hereditary, Ari Aster, on the scene. Despite the mainstream success of his feature lengths films, this one remains his most twisted and extreme. This one will stick with you.
 
 
 <!-- 
