@@ -39,7 +39,7 @@ Notable Quotes: *we're not a pit crew at Daytona. This can't be fixed in seconds
 Steve Jobs and the stories surrounding him are the stuff of legend. Job's life and his impact have been examined from almost every angle, so surely a film chronicling his time as department manager of Macintosh and Apple CEO couldn't be that compelling? Steve Jobs, the film, is captivating but also tragic. This film's primary goal is not to be as historically accurate as possible (there's an amazing
  [documentary ](https://youtu.be/SrlPyKxdMX4) if you are looking for that) but to use as much that's known about him from public knowledge and personal stories to stitch together a mesmorizing portrait of who he could have been and spoiler-alert the movie works.
 
-### Parasite
+#### Parasite
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/5xH0HfJHsaY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 This film will be studied in film school for a long time. Right as the film opened, i knew i was in are in for a treat. This film won the Oscar for best film in its year, is it a mystery why? This movie works on every level. I also don't think I have ever seen a director perform a genre switch so smoothly. I can go on giving out compliments but I want to limit the possibility of spoilers. Please watch this movie.
