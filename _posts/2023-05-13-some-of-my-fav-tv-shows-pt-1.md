@@ -15,7 +15,7 @@ Notable Quotes: *I don't ask where all the money comes from. I'll take any mothe
 
 There are no perfect things in this universe but if there was The Wire would be the closest thing to it. Disregaurding the political message commonly associated with The Wire, the direction, the writing, acting and sound design are all still heads and shoulders above most if not all current tv shows despite first airing in june 2, 2002. The show is centered around baltimore innercities and the different groups that interact either directly or indirectly with that area. From the ghettoes to the police department to the public school system to public office, Wire portrays these  different realms with astonishing realism while revealing foundational flaws common to all these sectors. Despite the subject matter there is no finger-pointing just flawed people trying to survive or thrive in their own world and the consequences that follow.
 
-## Vinland Saga
+## Vinland Saga (English Sub not Dub)
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/f8JrZ7Q_p-8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 Notable Quotes: *You don't have any enemies, No one has any enemies.*
