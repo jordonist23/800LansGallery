@@ -21,14 +21,14 @@ I use to wonder often what aesthetes feel when they see a Picasso or van gough p
 
 Notable Qoutes: *I Tried To Have A Miscarriage.*
 
-Hereditary is one of the most terrifying movies of all time. It is also a well-directed dramatic thriller that centers around family dysfunction. The off-kilter editing throughout the film adds to the building tension throughout the movie.  I want to keep my synopsis brief.
+Hereditary is one of the most terrifying movies of all time. It is also a well-directed dramatic thriller that centers around family dysfunction. The off-kilter editing throughout the film adds to the building tension throughout the movie. This movie will give night-terrors. Enjoy.
 
 #### The Grand Budapest Hotel
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/1Fg5iWmQjwk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 Notable Quotes: *I've Had Older*
 
-Okay, so I went into this film blind with a friend and I had an unforgettable experience. Grand Budapest Hotel is a unique film in almost every conceivable way. From the strikingly vibrant cinematography to the crass subject matter, this film stands in a space of its own. This one is wierd and charming. Enjoy.
+Okay, so I went into this film blind with a friend and I had an unforgettable experience. Grand Budapest Hotel is a unique film in almost every conceivable way. From the strikingly vibrant cinematography to the crass subject matter, this film stands in a space of its own. This one is weird and charming. Enjoy.
 
 
 #### Steve Jobs
@@ -58,7 +58,7 @@ It Follows is yet another horror addition to this list. The movie is about a gro
 
 Notable Quotes: *There are no two words in the English language more harmful than good job*
 
-I never thought jazz could be so panic-inducing until I saw Whiplash. This movie is so tense that you could hear a pin drop in the auditorium where i was watching the movie. JK Simmons is a respected conductor and mentor to pupil, Dameon, a drummer who wants to be the next charlie parker. What follows is the most stress-inducing film I have seen since black swan (another favorite of mine). If you like Black Swan, here is another one for you.
+I never thought jazz could be so panic-inducing until I saw Whiplash. This movie is so tense that you could hear a pin drop in the auditorium where i was watching the movie. JK Simmons is a respected conductor and mentor to pupil, Dameon, a drummer who wants to be the next charlie parker. What follows is the most stress-inducing film I have seen since black swan (another favorite of mine). If you like Black Swan, here is another movie for you.
 
 #### Punch Drunk Love
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/MYSx_K9UEek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
