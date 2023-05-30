@@ -6,7 +6,7 @@ categories: [TV, Shows ]
 image: assets/images/tvshowsmerged.jpg
 ---
 
-Tv Shows are beginning to supplant the big screen as the primary visual-storytelling medium. Although I love movies the most it's impossible to ignore the increasing quality of tv shows in the past decades. If you are looking for some tv shows to watch here are some of my favorites in no particular order.
+Tv Shows are beginning to supplant the big screen as the primary visual-storytelling medium. Although I love movies the most, it's impossible to ignore the increasing quality of tv shows in the past decades. If you are looking for some tv shows to watch here are some of my favorites in no particular order.
 
 ## The Wire
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/1S5khOZ1wBs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
