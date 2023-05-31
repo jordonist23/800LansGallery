@@ -3,7 +3,7 @@ layout: post
 title:  "Some of my Favourite Shorts Pt.1"
 author: jordon
 categories: [ Movies, Shorts]
-image: assets/images/succession.webp
+image: assets/images/Bruce-Wayne-Portrayal.jpg
 tags: [sticky]
 ---
 
