@@ -3,7 +3,7 @@ layout: post
 title:  "Some of my Favourite Shorts Pt.1"
 author: jordon
 categories: [ Movies, Shorts]
-image: assets/images/mergedshorts.jpg
+image: assets/images/succession.webp
 tags: [sticky]
 ---
 
