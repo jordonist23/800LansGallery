@@ -3,7 +3,7 @@ layout: post
 title:  "Some of My Favourite Movies Pt.1"
 author: jordon
 categories: [ Movies, Film ]
-image: assets/images/moviesmerged.jpg
+image: assets/images/punchdrunklove.jpg
 ---
 
 
