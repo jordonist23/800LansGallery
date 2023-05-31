@@ -3,7 +3,7 @@ layout: post
 title:  "Some of my Favourite TV shows Pt.1"
 author: jordon
 categories: [TV, Shows ]
-image: assets/images/tvshowsmerged.jpg
+image: assets/images/succession.webp
 ---
 
 Tv Shows are beginning to supplant the big screen as the primary visual-storytelling medium. Although I love movies the most, it's impossible to ignore the increasing quality of tv shows in the past decades. If you are looking for some tv shows to watch here are some of my favorites in no particular order.
