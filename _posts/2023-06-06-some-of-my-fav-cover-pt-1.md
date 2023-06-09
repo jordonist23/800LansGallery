@@ -17,7 +17,7 @@ One of the most fascinating properties of classic songs from the past is their r
 This cover is the definition of slick. The intro alone is perfect. The simple jazzy chords, the rhythmic drums and even simpler bass. There is something effortless about this cover. Enjoy
 
 #### Jacob Collier Flinstones
-*Origional Song Link: [link](https://www.youtube.com/watch?v=LgPpowVNEfE)*
+*Origional Song Link: [link](https://www.youtube.com/watch?v=HJI4uqkv2bU)*
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/zua831utwMM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 I would be lying if I said I discovered Jacob Collier on my own. A former work colleague, who is more musically inclined than myself, was trying to impress onto me the genius of this man. At the time, I didn't fully understand it  until I saw this cover. The highs and lows of his vocal range are impressive, not to mention his fine-tuned fidelity at these ranges. However, the most outrageous part of his performance is his ability to change pitch and harmonies while  maintaining the same, popular, playful Flinstons magic throughout the song. Jacob Collier is not only a generational talent but has a technical understanding of sound that allows him to do things only he alone might be able to replicate. 
 
