@@ -29,7 +29,7 @@ I've always thought that the synth chords played in Billie Jean over the recogni
 #### Human Nature 
 *Origional Song Link: [link](https://www.youtube.com/watch?v=ElN_4vUvTPs)*
 
-Human Nature is a classic song by Micheal Jackson. The themes about the childishness and ebbs and flows of human nature perfectly expressed with the chords and lyrics. The reason for these themes are revealed beautifully in this [interview](https://youtu.be/SrlPyKxdMX4). Here is joeys interpretation. 
+Human Nature is a classic song by Micheal Jackson. The themes about the childishness, and ebbs and flows of human nature are perfectly expressed with the chords and lyrics. The reason for these themes are revealed beautifully in this [interview](https://youtu.be/SrlPyKxdMX4). Here is joeys interpretation. 
 ### Joey Alexander Human Nature
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/XkUtaDhXKMU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 This intimate cover is performed by Joey Alexander, who did this rendition at age 17! He plays up the Jazziness already tucked in the chord progression of the original while remaining playful and childish. He also doesnt overplay this melody which tends to a be a trend set by many prolific jazz pianoist. This stands, head and shoulders, above most human nature covers. It feels sincere, simple, and profound just like the original.
@@ -38,6 +38,6 @@ This intimate cover is performed by Joey Alexander, who did this rendition at ag
 *Origional Song Link: [link](https://www.youtube.com/watch?v=he4WPvKGGR0)*
 <div style="width:100%;height:0px;position:relative;padding-bottom:75.000%;"><iframe src="https://streamable.com/e/froeax" frameborder="0" width="100%" height="315" allowfullscreen style="width:100%;height:100%;position:absolute;left:0px;top:0px;overflow:hidden;"></iframe></div>
 
-Jamie fox is one of the most talented entertainers of all time. He can impersonate, act, sing, perform stand up and much more. Some of his most memorable moments are when hes able to combine all these talents in one performance. There is no better example of this than when not only does a slowed down version of the brady bunch. He also sings the brady bunch in the style of Prince, Luther Vandross and others. This has got to go down as one of the best live performances of all time.
+Jamie fox is one of the most talented entertainers of all time. He can impersonate, act, sing, perform stand up and much more. Some of his most memorable moments are when hes able to combine all these talents in one performance. There is no better example of this than when he does a slowed down version of the brady bunch live in his stand up. He also sings the brady bunch in the style of Prince, Luther Vandross and others. This has got to go down as one of the best live performances of all time.
 
 
