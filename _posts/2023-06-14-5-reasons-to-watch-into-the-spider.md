@@ -54,7 +54,7 @@ For a film with so many characters, it's surprising how all of them have made an
 
 ![](/800LansGallery/assets/images/spiderwriting.gif)
 
-The writers have done a masterful job in this film taking every. The writers are judicious with the dialogue, giving each character just enough lines and moments to shine. The writers strike a nice balance between comedy, drama, and action effortlessly. There are also tons of subtle themes and small details that the writers decorate the plot with that enhance the story. These seeds planted by the writers also bear fruit in the sequel in unexpected and satisfying ways.
+The writers have done a masterful job in this film taking every story element and weaving it into a cohesive moving portrait. The writers are judicious with the dialogue, giving each character just enough lines and moments to shine. The writers strike a nice balance between comedy, drama, and action effortlessly. There are also tons of subtle themes and small details that the writers decorate the plot with that enhance the story. These seeds planted by the writers also bear fruit in the sequel in unexpected and satisfying ways.
 
 ## Conclusion
 "Spider-Man: Into The Spiderverse" is my favorite spider-man movie and one of my favorite animated movies of all time. The story is lean, innovative, heartwarming, clever, funny, and much more. The sequel "Across the Spider-Verse" is just as good as, so check that out after watching this movie.
