@@ -40,7 +40,7 @@ The heart and soul of this film are the characters. Lets start with the main cha
 
 ### Miles Morales
 
-Miles feels like one of the most relatable protagonist in years, and it's not because he is black. He is a kid that is trying to carve out an identity of his while trying to live up to his parent's expectations which is a rarely portrayed but very relatable character trait. He also retains the kid next door feeling that made the Spiderman hero so loveable over the years. Miles Morales feels as fresh as when tobey maguire burst on the scene in 2002 as Peter Parker.
+Miles feels like one of the most relatable protagonist in years, and it's not because he is black. He is a kid that is trying to carve out an identity of his own while trying to live up to his parent's expectations which is a rarely portrayed but very relatable character trait. He also retains the kid next door feeling that made the Spiderman hero so loveable over the years. Miles Morales feels as fresh as when tobey maguire burst on the scene in 2002 as Peter Parker.
 
 ### Peter B Parker
 
